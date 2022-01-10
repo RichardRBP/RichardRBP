@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RichardRBP
 - 👀 I’m interested in reading books, watching anime, playing videogames
-- 🌱 I’m currently learning how to be best version of myself
+- 🌱 I’m currently learning how to be the best version of myself
 - 💞️ I’m looking to collaborate on a huge project for my thesis
 
 
